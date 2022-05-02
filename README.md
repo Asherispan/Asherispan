@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Asherispan
+- 👋 Hi, I’m asher 
 - 👀 I’m interested in ppl
 - 🌱 I’m currently learning idk
 - 💞️ I’m looking to collaborate on eveyone
